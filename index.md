@@ -1,0 +1,2 @@
+# Rick Rules 
+## Fuck Rules
